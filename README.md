@@ -13,4 +13,15 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+
 -->
+Bento at [bento.me/bethany33](https://bento.me/bethany33)
+
+
+LinkTree at [linktr.ee/Bethanylin33](https://linktr.ee/Bethanylin33)
+
+HeyLink at [heylink.me/lin.bethany33](https://heylink.me/lin.bethany33)
+
+BioSite at [bio.site/bethany33](https://bio.site/bethany33)
+
+[FLUX Dev](https://fluxdev.net/flux-dev-no-restrictions)
